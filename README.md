@@ -1,1 +1,0 @@
-Diatas langit masih ada lampu canda alias langit [*google.com] [https://] *★†‡ ¿?©®«≤‹⟨⟩»≥› zn--
